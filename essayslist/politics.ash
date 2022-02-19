@@ -1,0 +1,25 @@
+                                                                      POLITICS
+The world “politics” represents the diverse world of relationships, activities, behavior, orientation, views and communication links regarding government and governance. The main subject of the politics is the social (ethnic) group with its political organizations, institutions, movements and leaders. The purpose of the politics is to guide public development in a positive direction by identifying common objectives and ways of achieving them.
+
+Politics includes activities that are associated with the governance and administration of a country, state or area. It consists of a group of people who take decisions that apply to the organized human community. Human beings are distinct from animals because they have to create a life through struggle, decisions, choices rather than just relying on instincts. Therefore politics play a significant role in human’s life because it’s in their nature to be political. According to Aristotle, politics is adopted to improve the lives and to create a good society.
+
+India is the biggest democracy in the world. It has a vast population where people are endowed with franchise rights and includes a more substantial number of political parties. The entire modal of government followed by India’s constitution was that of British rule. The election is held at various levels. National and state elections are different from elections held in city, town or village.
+
+Types of Politics
+If we trace back to the history politics was classified into four-Aristocracy, Oligarchy, Monarchy, and democracy.
+  i.Aristocracy means rule by the best. People believed that philosophers were qualified to become a     political leader. Also, aristocracies were based on wealth and land ownership.
+  ii.Oligarchy means rule by few, which meant the rich. The person with money donates or funds the          candidate who works in their favour.
+  iii.Monarchy is a rule-governed by a king or a queen. It is the most common form of politics in history     and has been the target of many revolutionaries. Saudi Arabia is the country which still holds this     concept.
+  iv.Democracy is a government by the people, for the people. Citizens elect their representatives in the     elections by casting their vote.
+
+Dirty Politics
+A type of politics in which people maintain a friendly attitude and persona to disguise their opponents and then attack them with vindictive actions. It is found in various industries and sectors. Dirty politics is a kind of politics in which people manipulate their behaviour to suit their interests and benefit. It neglects the overall development of the nation, thus crippling the system and making it weak. The growth of the country is hampered, and its essence is lost. For instance, the ministers of a different political party, in order to sabotage the position of the opposition use malicious measures.
+
+Any means of methods are adopted to create fake news and allegations. Furthermore, they instil people with hatred and win elections in the majority. The entire media is orchestrated in their favour and against the opposition. The newspapers, news channel and social media platform are utilized to win the votes. The so-called politicians are corrupt and unscrupulous. The power and position to which they are entitled to be exploited in every possible way to fulfil their cruel intentions.
+
+Their whole life flows through scams and frauds. They form a conviction of themselves attaining invincibility by acquiring the post. Hence they quickly get away from crime. Moreover, before assuming power, these politicians assure citizens that they will fulfil their promises and will heed to the public demands. Numerous plans and activities are organized to lure people into casting their vote. The campaigns during elections are littered with slogans concerning poor and underprivileged conditions.
+
+Fake commitments and guarantees dominate the whole atmosphere. Citizens who are uneducated and unaware of their sly intentions fall and cast their vote. After the elections, as soon as they come in power, promises seem to be fade, and they start working for selfish motive. They think people are gullible and keep on fooling them in every election.
+
+Conclusion
+Lack of educated ministers and the qualification designed for their position is inappropriate and strange. They don’t care about the people and their needs as they lack empathy and humanity. Not only ministers but wherever politics is witnessed in a negative way, people forget teamwork, compassion, values and most important tolerance. In short, a country needs good leaders in every industry, institution or sector for the nation to flourish and grow. All must unite and work together to make the country into a prosperous nation in the world.
